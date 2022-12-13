@@ -13,5 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: call
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like pe
---> my name is cristian
-my last name is mejia
+-Criatian Antono Mejia
